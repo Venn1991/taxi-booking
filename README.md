@@ -1,10 +1,3 @@
-bvs vsv s
-ncd ncds n
-nvbsnvbsnsv
-ggdsdsghgmg
-hdshdhmhmj
-dsbvbsa c
-csb abcs 
-sab ab
-abvasbvab
-cbsan a
+nmc n nsa
+csasamc ms cms
+cssa.cs
